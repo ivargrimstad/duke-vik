@@ -1,1 +1,1 @@
-# duke-vik
+# Duke Vik
